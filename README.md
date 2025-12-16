@@ -81,4 +81,4 @@ Atualmente aprofundando conhecimentos em:
 ## 🔗 Onde me encontrar
 
 * 💼 **LinkedIn**: [https://www.linkedin.com/in/jonicleibernardojunior/](https://www.linkedin.com/in/jonicleibernardojunior/)
-* 📱 **WhatsApp**: [Fale comigo no WhatsApp](https://wa.me/47996146468)
+* 📱 **WhatsApp**: [Fale comigo no WhatsApp](https://wa.me/47991624692)
